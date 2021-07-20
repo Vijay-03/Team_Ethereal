@@ -1,2 +1,2 @@
 - 👋 Hi guys, I’m @Vijay-03
-- 👀 Here is where i post some of my projects
+- 👀 Here is where i post some of my other projects
